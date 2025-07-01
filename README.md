@@ -1,0 +1,1 @@
+# edogwa_kosodate
